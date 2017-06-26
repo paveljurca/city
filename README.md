@@ -1,1 +1,0 @@
-# Prague, Czech Republic
